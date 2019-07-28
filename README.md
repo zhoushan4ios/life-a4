@@ -1,4 +1,4 @@
-# 时间小格隐私政策
+# 时间小格
 
 Privacy policy
 
