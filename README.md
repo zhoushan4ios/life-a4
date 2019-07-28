@@ -1,4 +1,4 @@
-# life-a4
+# 时间小格隐私政策
 
 Privacy policy
 
